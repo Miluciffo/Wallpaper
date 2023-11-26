@@ -1,2 +1,2 @@
 # Wallpaper
-Wallpaper pack BY Miluciffo
+Wallpaper pack by Miluciffo
